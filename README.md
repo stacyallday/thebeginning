@@ -1,3 +1,3 @@
-Chapter 2 Goldbacks# VerifiedGoldbacks.com
+Chapter 2 Goldbacks#
 # thebeginning
 Chapter1
